@@ -1,6 +1,13 @@
 
 - [Transvaluation of all values](https://www.youtube.com/watch?v=cYBgE5C4HaY)
 - [Burned out v. Bored](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f6/Challenge_vs_skill.svg/2560px-Challenge_vs_skill.svg.png)
+- Demon mode gets shit done (Elon & Dad)
+   - It's a behavioral seizure
+   - Just like with St. Paul
+   - All faculties of Brain
+   - They're engaged
+   - Generalist in play
+   - Even Sam Altman concurs 
 
 *[Ship](https://www.ycombinator.com/blog/tips-ship-early-and-often/) [early](https://en.wikipedia.org/wiki/Release_early,_release_often) [and](https://www.youtube.com/watch?v=eAo8gnUCWzE) [often](https://www.youtube.com/watch?v=a6jeZ7m0ycw) [-](https://www.youtube.com/watch?v=8JBUAqGMR04) Sam Altman*
 
